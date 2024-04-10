@@ -1,2 +1,1 @@
-# ettoooo.github.io
 
